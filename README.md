@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Shashankasis
+- 👀 I’m interested in Project Manager, Product Manager, Construction Project Manager.
+- 🌱 I’m currently learning OSHA30, Bluebeam.
+- 💞️ I’m looking to collaborate on any engineering projects and organizations.
+- 📫 How to reach me at: shashankasisbathula@gmail.com
